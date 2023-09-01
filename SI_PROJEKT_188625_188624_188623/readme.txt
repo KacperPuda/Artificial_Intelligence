@@ -1,0 +1,1 @@
+Dane do projektu zajmują za dużo miejsca, zatem dane zostaną przedstawione przy oddawaniu projektu.
